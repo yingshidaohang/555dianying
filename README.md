@@ -1,6 +1,6 @@
 <h2>555电影网官网入口 - 高清影视在线观看网站</h2>
 <p>555电影网是一个专注于提供免费在线影视资源的平台，汇集了海量的电影、电视剧、综艺节目、动漫等热门影视内容。该网站以丰富的资源库、高清的画质以及便捷的用户体验而受到众多影视爱好者的喜爱。555电影网不仅提供最新上映的国内外大片，还涵盖了经典老片、海外Netflix热门剧集以及日韩恐怖片等多种类型。此外，网站还支持多种设备访问，包括安卓和iOS移动端，用户可以随时随地享受观影体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5853.html" target="_blank"><strong>555电影网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://555dianying.wwwnav.com/" target="_blank"><strong>555电影网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
